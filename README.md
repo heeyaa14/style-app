@@ -4,7 +4,7 @@
 
 ### 사진
 
-![main](https://blog.naver.com/singo19/130125101185)
+![main](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2F20100615_31%2Fibom123_1276586816828Bmq16_jpg%2F%25B0%25AD%25BE%25C6%25C1%25F62_ibom123.jpg&type=b400)
 
 ### 확장 프로그램 설치
 
